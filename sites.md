@@ -323,3 +323,5 @@
 1. [wiki.vg](https://wiki.vg/)
 1. [xHamster](https://xhamster.com)
 1. [zoomit](https://www.zoomit.ir)
+1. [E621](https://e621.net/)
+1. [Rule34](https://rule34.xxx/)
